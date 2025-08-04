@@ -1,1 +1,0 @@
-# Preparation-For-Tech-Company
